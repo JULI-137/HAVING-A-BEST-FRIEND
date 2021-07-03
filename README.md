@@ -17,3 +17,8 @@ The friend who had slapped and save his best friend asked him;
 The other friend replied;
 
 "When somebody hurts us we should write it down in the sand where winds of forgiveness can erase it away. But, when someone does something good for us, we must engrave it in stone where no wind can ever erase it".
+
+
+MORAL OF THE STORY:
+
+Don't value the things you have in your life. But value who you have in your life.
